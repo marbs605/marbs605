@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 ###
 
-<p align="center">Sounds interesting? <a href="https://ph.linkedin.com/in/marvin-fabricante-2405b9370">Check it out!</a></p>
+<p align="center">Sounds interesting? <a href="https://ph.linkedin.com/in/marvin-fabricante-2405b9370">Check this out!</a></p>
 
 ###
 
